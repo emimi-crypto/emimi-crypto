@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @emimi-crypto
-- 👀 I’m interested in python, crochet and golf
+- 👀 I’m interested in python, crochet and baking
 - 🌱 I’m currently learning python and asl
 - 💞️ I’m looking to collaborate on nothing <3
 - 📫 How to reach me: don't
